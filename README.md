@@ -10,3 +10,5 @@ https://www.google.com/search?q=churros+animado&source=lmns&bih=1181&biw=592&cli
 **Alunos:Elder Jackson e Patrik Aparecido**
 
 **Números de chamada:7 e 28**
+
+@LiziBugalski
